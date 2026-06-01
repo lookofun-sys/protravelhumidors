@@ -1,20 +1,37 @@
 # ProTravelHumidors
 
-Premium Travel Humidors Designed For Serious Cigar Smokers.
+Premium Travel Humidors Engineered For Serious Cigar Smokers.
 
-## Our Products
+## About
 
-* Travel Humidors
-* Cigar Gift Sets
-* Cigar Accessories
-* Travel Cases
+ProTravelHumidors designs rugged, airtight travel humidors built for golfers, travelers, outdoor enthusiasts, and cigar collectors.
+
+Our products combine:
+
+- Crushproof Protection
+- Airtight Sealing
+- Built-In Hygrometer
+- Precision Foam Interior
+- Travel-Tested Durability
+
+## Product Categories
+
+### Travel Humidors
+Protect cigars during flights, road trips, golf outings, and everyday carry.
+
+### Cigar Gift Sets
+Premium cigar gifts including travel humidors, torch lighters, and Damascus cutters.
+
+### Cigar Accessories
+Professional cigar tools designed for travel and storage.
 
 ## Resources
 
-* Travel Humidor Guides
-* Cigar Storage Tips
-* Humidity Management
-* Travel Protection Advice
+- Travel Humidor Guides
+- Cigar Storage Tips
+- Humidity Management Resources
+- Travel Protection Advice
 
-Website:
+## Official Website
+
 https://protravelhumidors.com
