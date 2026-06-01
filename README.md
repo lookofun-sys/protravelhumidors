@@ -2,7 +2,7 @@
 
 We design **crushproof, airtight travel humidors** with built‑in hygrometers. Perfect for flights, golf, and everyday carry. Explore our guides and products below.
 
-![Rugged black cigar travel case being stepped on by a combat boot](https://protravelhumidors.com/wp-content/uploads/2026/05/Rugged-black-cigar-travel-case-being-stepped-on-by-a-combat-boot-featuring-75KG-crushproof-shell-and-airtight-seal-for-airport-and-road-trip-travel.webp)
+![Rugged black cigar travel case being stepped on by a combat boot](https://protravelhumidors.com/wp-content/uploads/2026/05/Heavy-duty-black-cigar-travel-case-being-run-over-by-a-car-tire-with-water-splashing-highlighting-75KG-crushproof-and-airtight-features.webp)
 
 ---
 
